@@ -1,5 +1,5 @@
 ### 小猪网站
-[PigHub](https://pighub.top]
+[PigHub](https://pighub.top)
 
 
 ### 图包下载：
